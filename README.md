@@ -1,2 +1,2 @@
-# seong.yun.github.io
+# seongyun.github.io
  
